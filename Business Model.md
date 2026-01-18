@@ -9,7 +9,8 @@
 ## 📄 Full Document Access
 The complete and detailed business model has been prepared as a separate **DOC file**, following the competition recommendation to include the business model as an independent document.
 
-> 👉 **[View / Download Business Model (DOC)](#)** > *(https://docs.google.com/document/d/1P2jEkDq4qCoTfym-7SBfn3-DI9od2Iwv1Iz6upvNW2s/edit?usp=sharing)*
+👉 **[View / Download Business Model (Google Docs)](https://docs.google.com/document/d/1P2jEkDq4qCoTfym-7SBfn3-DI9od2Iwv1Iz6upvNW2s/edit?usp=sharing)**
+
 
 ---
 
