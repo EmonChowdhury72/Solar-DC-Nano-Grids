@@ -1,6 +1,6 @@
 # Solar-DC Nano-Grids for Bangladesh
 
-**Team / Vendor:** SolarSpark Bangladesh  
+**Team:** SolarSpark Bangladesh  
 **Theme:** Sustainable Energy  
 **Competition Date:** 7 February 2026  
 
